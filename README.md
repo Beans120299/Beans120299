@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Beans120299
 - 👀 I’m interested in coding, music, math, and science
-- 🌱 I’m currently "learning" I'm a student, but my AP classes are all reviews on what I already know
+- 🌱 I’m currently learning about grammar
 - 💞️ I’m looking to collaborate on nothing yet
 - 📫 How to reach me @em63738393@gmail.com
 - 😄 Pronouns: he/him/his
